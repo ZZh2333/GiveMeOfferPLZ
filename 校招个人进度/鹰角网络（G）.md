@@ -7,5 +7,5 @@
 
 进度查询：[鹰角招聘平台](https://campus.hypergryph.com/campus_apply/hypergryph/26326/#/)
 
-# 7-20 13：30
+# 7-20 13:30
 邮件通知暂不匹配

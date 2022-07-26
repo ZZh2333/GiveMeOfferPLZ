@@ -5,3 +5,6 @@
 + 游戏客户端开发工程师  
 
 进度查询：[字节招聘平台](https://jobs.bytedance.com/campus/position/application?referral_code=DT7U21Y)
+
+# 7-25 20：00
+简历未过，流程终止

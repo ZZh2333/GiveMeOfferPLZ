@@ -6,3 +6,6 @@
 + 测试开发工程师
 
 进度查询：[网易互联网](https://campus.163.com/app/personal/apply)
+
+# 9-3 12：50
+简历未通过
